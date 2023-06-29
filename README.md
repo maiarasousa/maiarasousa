@@ -1,4 +1,4 @@
-## Olá! Eu sou a Maiara Sousa
+## Hi! I'm Maiara Sousa
 
 
 <div align="center">
